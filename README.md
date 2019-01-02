@@ -1,1 +1,1 @@
-# BestMotherFuckingWebsite
+# BetterMotherFuckingWebsite
