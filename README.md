@@ -1,2 +1,1 @@
-
-https://rahjean.github.io/BestMotherFuckingWebsite/
+https://rahjean.github.io/BetterMotherFuckingWebsite/
